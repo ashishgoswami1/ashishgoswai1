@@ -24,7 +24,7 @@
 
 ---
 
-📫 **Reach Me:**
+📫 **Reach Me:*ashishgoswami93746@gmail.com*
 
 - 📧 Email: ashishgoswami93746@gmail.com  
 - 📷 Instagram: [@ashishgoswami.1](https://instagram.com/ashishgoswami.1)
